@@ -4,7 +4,7 @@ Contributor:<br>
 1)Chandrakant Yeshi   : yeshichandrakant@gmail.com <br>
 2)Krishna Gupta       : krishnagupt1999@gmail.com <br>
 3)Avinash Kapse       : kapse9578@gmail.com <br>
-4)Rishikesh Sonawne   : <br>
+4)Rishikesh Sonawne   : rishikesh9930@gmail.com <br>
 
 <h1>Guidelines:</h1>
 Step 1 - Beginning <br>
